@@ -8,5 +8,4 @@ In small companies, majority of employees responded that their employers did not
 Moreover, company with any size, have an approximate equivalent proportion of people sought treatment for mental health. So, there may be a case of unawareness about mental health and their policies and benefits provided by companies to help with mental health issues. 
 
 
-![image](https://user-images.githubusercontent.com/84792279/163519162-2ac69cd6-1124-4e13-a6c2-26dce557c8ab.png)
 
